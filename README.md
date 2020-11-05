@@ -1,11 +1,3 @@
 # deneme
-asfdoıhğraıuhgahfg
-SFDGRDFSJGIDABVUHSDFVÜAFGFSDAGBAR
-GBIDRGVIUergüGSRHER
-------------
------------
-----------
--------------
----------------
---------------
----------------
+a
+
